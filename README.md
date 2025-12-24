@@ -1,0 +1,2 @@
+ссылка на FIgma
+https://www.figma.com/design/5H70o4FfyH9WKJhDWMjcEm/Untitled?node-id=0-1&p=f&t=BLyGcLh024pgwXSR-0
